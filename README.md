@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @W9B3N
-- 👀 I’m interested in hacking an important files
-- 🌱 I’m currently learning how to hack  a file yeah.. ahah
-- 💞️ I’m looking to collaborate on hacking my school documents
+- 👀 I’m interested in HACKING INTO RADIATA DA FILE
+- 🌱 I’m currently learning how TO HACK INTO DA.. ahah
+- 💞️ I’m looking to collaborate on HACKING IN TO DA
 - 📫 How to reach me just email me gawr1234rgura@gmail.com
 - 
 - 
